@@ -1,1 +1,1 @@
-# rsschool-cv
+https://NurgulAksha.github.io/rsschool-cv/cv
